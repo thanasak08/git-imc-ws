@@ -1,2 +1,0 @@
-thanasak
-Thon
